@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pravallika Vanamala
-- 👀 I’m interested in ...Coding, Connecting and Fashion
+- 👀 I’m interested in ...Coding, Connecting and Collaborating
 - 🌱 I’m currently learning ...Python
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me ...https://www.linkedin.com/in/pravallika-vanamala-7612871a2..
